@@ -1,4 +1,3 @@
-
 Our first product is Liftago Taxi!
 Thanks to our innovative community business concept,
 you can become a Liftago marketer and build a residual income from this service.
